@@ -128,6 +128,9 @@ This one? Nope! Already ended!
  no :)
 
 
+I, Nater_Marson, have no ownership over the characters used in this album.
+This Album was made with permission of the other artists.
+All ownership of the characters depicted in this album belong to their original artists.
 
 Tales From The Dojo © 2025 by Nater_Marson is licensed under CC BY 4.0. 
 To view a copy of this license, visit https://creativecommons.org/licenses/by/4.0/ 
